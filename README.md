@@ -1,0 +1,1 @@
+# vivida_store
